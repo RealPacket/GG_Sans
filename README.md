@@ -1,2 +1,2 @@
-# GG_Sans
+# GG Sans
 ZZ Sans, not GG Sans
